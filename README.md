@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Aditya
+# Hi , I'm Aditya
 **A passionate Problem Solver || Developer || Learning & Growing**
 
 Email Me 👉 ✉️ **singhaditya26742@gmail.com** For Collaboration/Project or Anything Else. 😊😊
